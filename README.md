@@ -1,3 +1,3 @@
 # The-Conch-Street-RPG-Modpack
 
-https://festive-handle-aef.notion.site/bdb4e94997334149a3c617a4d92ce0f1?v=feb4f708ce57442183464e039425e6a4
+[List of Mods](https://festive-handle-aef.notion.site/The-Conch-Street-RPG-Modpack-a2f036eb22c044769e170e3a36564987)
